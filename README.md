@@ -1,1 +1,1 @@
-# DharanikkumarC_week3_assignmnt
+# DharanikumarC_week3_assignment
